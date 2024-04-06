@@ -1,5 +1,4 @@
-- I’m currently learning robotics and automation 
--
+- I’m currently studying robotics and automation 
 - 📫 How to reach me - lalitvsarode2003@gmail.com 
 
 <!---
