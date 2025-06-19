@@ -1,4 +1,4 @@
-- I’m currently studying robotics and automation 
+- Completed my Bachelor of Engineering in Robotics and Automation branch
 - 📫 How to reach me - lalitvsarode2003@gmail.com 
 
 <!---
