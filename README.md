@@ -1,4 +1,4 @@
-- Completed my Bachelor of Engineering in Robotics and Automation branch
+- Completed my Bachelor of Engineering in Robotics and Automation
 - 📫 How to reach me - lalitvsarode2003@gmail.com 
 
 <!---
